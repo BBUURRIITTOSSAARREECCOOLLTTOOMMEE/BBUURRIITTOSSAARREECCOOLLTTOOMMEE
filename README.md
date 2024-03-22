@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything in the arts, science, math and coding.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on coding, math and science.
-- 📫 How to reach me. My email is private but if i trust you I will tell you my email.
+- 📫 How to reach me. My email is private but if I trust you I will tell you my email.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like burritos a lot and I was close to entering the Premiers coding challenge in Queensland.
 
